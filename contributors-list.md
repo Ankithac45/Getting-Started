@@ -22,6 +22,6 @@ Willing to wage a war with anyone who thinks that pineapple on pizza is okay. <b
 **Name** : Ankitha C <br />
 **Link to profile** : [Ankithac45](https://github.com/Ankithac45) <br />
 **About Me** : <br />
-Eager for knowledge and accept challenges!!
+Eager for knowledge and accept challenges!!<br>
 
 
