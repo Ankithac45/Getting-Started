@@ -19,6 +19,11 @@ We're drowning in information and starving for knowledge. <br />
 Born and brought up in Bengaluru. A Harry Potter fanatic and occasional keyboard player. <br />
 Willing to wage a war with anyone who thinks that pineapple on pizza is okay. <br />
 
+**Name** : Ankitha C <br />
+**Link to profile** : [Ankithac45](https://github.com/Ankithac45) <br />
+**About Me** : <br />
+Eager for knowledge and accept challenges!!<br>
+
 
 
 
